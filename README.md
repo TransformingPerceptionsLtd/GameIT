@@ -29,7 +29,7 @@ To facilitate a socially bound movement of people new to the digital industry wh
 STRATEGY
 Communities & Parnerships!
 Its that simple really... 
-In order for this idea to have the impact we seek we need a shit load of people to all pull in the same direction, for a sustained period of time, and with regular moments of success - often characterised by lots of learning!
+In order for this idea to have the impact we seek we need lots of people to all pull in the same direction, for a sustained period of time, and with regular moments of success - often characterised by lots of learning!
 So we decided to throw the idea out there, and see what organically from the cosmic forces that bind us all together
 
 Communities of passionate experts are needed
